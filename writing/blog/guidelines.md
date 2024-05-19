@@ -10,7 +10,7 @@ Try to use "I" and "me", and "we" and "us".
 
 Don't worry about whether the reader will "get it" if you indulge a sudden impulse of humor.
 If it amuses you in the act of writing, put it in.
-It can always be removoed, but only you can put it in.
+It can always be removed, but only you can put it in.
 You are writing primarily to please yourself, and if you go about it with enjoyment you will also entertain the readers who are worth writing for.
 You are who you are and the reader is who he/she is, and either you'll get along or you won't.
 
