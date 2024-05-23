@@ -1,4 +1,4 @@
-# Blog writing
+# Non-fiction writing
 
 ## Be yourself
 
