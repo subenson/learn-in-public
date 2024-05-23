@@ -41,3 +41,32 @@ Don't fight suc a current if it feels right.
 If it happens the second part of your article will be badly out of joint with the first part.
 At least you'll know which parts are truest to your instinct.
 Go back to the beginning and rewrite it so that your mood and style are consistent from start to finish.
+
+## Lead
+
+The important sentence is the first one.
+If it doesn't induce the reader to proceed to the second, your article is dead.
+You keep tugging the reader until he is hooked.
+Do not count on the reader to stick around.
+Readers want to know what's in it for them.
+The lead must capture the reader immediately and force him to keep reading.
+It must provide hard details that tell the reader why the piece was written and why he ought to read it.
+
+Every paragraph should amplify the one that preceded it.
+Give more thought to adding solid detail and less to entertaining the reader.
+But take special care with the last sentence of each paragraph - it's the crucial springboard to the next paragraph.
+Try to give that sentence an extra twist of humor or surprise.
+
+## Ending
+
+An article that doesn't stop where it should stop becomes a drag and therefore a failure.
+You'll know when you have arrived at the end when you are about to repeat in compressed form what you have already said in detail.
+The tension you have built begins to sag and the readers interest drops.
+The readers are not too dumb to get the point.
+Failure to know where the last sentence should occur can wreck an article that until it sfinal stage has been tightly constructed.
+
+The perfect ending should take your readers slightly by surprise and yet seem exactly right.
+If you have presented all the facts and made the point you want to make, look for the nearest exit.
+Often it takes just a few sentences to wrap things up.
+It's like the curtain in a theatrical comedy.
+We are in the middle of a scene, when suddenly one of the actors says something funny, or outrageous, and the lights go out.
