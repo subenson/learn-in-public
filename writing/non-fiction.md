@@ -37,8 +37,8 @@ Any tone in which to approach the reader is acceptable, but don't mix two or thr
 
 It often happens that you'll make the prior decisions and then discover that they weren't the right ones.
 The material leads you in an unexpected direction, where you're more comfortable in a different tone.
-Don't fight suc a current if it feels right.
-If it happens the second part of your article will be badly out of joint with the first part.
+Don't fight such a current if it feels right.
+If it happens, the second part of your article will be badly out of joint with the first part.
 At least you'll know which parts are truest to your instinct.
 Go back to the beginning and rewrite it so that your mood and style are consistent from start to finish.
 
