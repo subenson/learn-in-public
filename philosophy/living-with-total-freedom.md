@@ -1,7 +1,7 @@
 # Living with Total Freedom
 
 - Freedom First.
-- Embrace discomfort.
+- Embrace uncertainty, ride life’s waves without clinging to calmness or control.
 - Live fully in the moment, finding joy in the beauty, irony, and quirks of everyday life.
 - Observe without judgement.
 - Let your values shape your choices.
